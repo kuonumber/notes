@@ -1,3 +1,3 @@
-# Data Driven Path
-###### tags: 'career'
+# 本筆記為個人心得彙總備分
+
 
